@@ -15,15 +15,15 @@
 
 **NORTH**
 - Peso da Régua | [video](https://www.youtube.com/watch?v=PMMZ5iGUYxk)
-- Porto | 
+- Porto | [video](https://youtu.be/P170_f49pv4)
 
 **CENTER**
 - Serra da Estrela | [video](https://www.youtube.com/watch?v=25Zo0kaLRMk)
 - Coimbra | [video](https://www.youtube.com/watch?v=O8njLUyly6c)
 
 **SOUTH**
-- Tavira Island | 
-- Lagos | 
+- Tavira Island | [video](https://youtu.be/hKZvTlDkTxU)
+- Lagos | [video](https://youtu.be/SkoWo8yzvZM)
 - Benagil Cave | [video](https://www.youtube.com/watch?v=lEFsQVMlRBI)
 
 ---
