@@ -76,6 +76,21 @@
 - **[7:17](https://youtu.be/uE6TCoXtZ7Y?t=7m17s)** Champaulimaud Center
 - **[8:04](https://youtu.be/uE6TCoXtZ7Y?t=8m04s)** Cristo Rei (http://bit.ly/how-to-get-to-cristo-rei-from-lisbon)
 
+**:: My favorite places to eat**
+
+- [Bifanas](https://goo.gl/images/3dJoHA) - [Café Beira Gare](https://goo.gl/maps/S9A4zo3Y5zt) - Order one bifana, put mustard inside and eat it with a beer
+- [Pasteis de bacalhau](https://goo.gl/images/oZ5abn) - 
+- [Alheira](https://goo.gl/images/wHesf9) - 
+- Bio (Vegetarian) -  
+
+
+**:: My favorite places for craft beer**
+
+- [Musa](https://goo.gl/maps/GF2Rk7Hw8NG2) - This is in a very hispter zone with some nice restaurants around
+- [Duque](https://goo.gl/maps/wEt7QYSdM382) - Tiny, cosy with great beer
+
+**:: My favorite places for wine**
+
 ---
 
 **[About SINTRA](#SINTRA)**
