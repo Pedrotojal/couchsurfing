@@ -43,7 +43,7 @@
   - [4 - Portas do Sol](http://bit.ly/miradouro-portas-sol) | [Location](https://goo.gl/maps/nr5Fdf8heqz)
   - [5 - Santa Luzia](http://bit.ly/miradouro-santa-luzia) | [Location](https://goo.gl/maps/tdD6cY6Ee9q)
   
-  **NOTE:** *Let's add a note here, until here, you were going down, in order to go to #6, you have go down, walk and go back up. Then to go to #7 you go down, then up again. If you're tired, skip #6 and go straight to #7*
+  **NOTE:** *Let's add a note here, until here, you were going down. In order to go to #6, you have go down, walk and go back up. Then to go to #7 you go down, then up again. If you're tired, skip #6 and go straight to #7*
   - [6 - Torel](http://bit.ly/miradouro-do-torel) | [Location](https://goo.gl/maps/Tr2aqvarjEB2)
   - [7 - Sao Pedro de Alcantara](http://bit.ly/miradouro-sao-pedro-alcantara) | [Location](https://goo.gl/maps/M44dzkGtwzK2)
   - [8 - Santa Justa Elevator](http://bit.ly/miradouro-santa-justa-elevator) | [Location](https://goo.gl/maps/rGWhCKQqMyA2)
