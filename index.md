@@ -133,7 +133,7 @@ Note: [buy the tickets online and avoid queues](https://www.parquesdesintra.pt/e
 **[DISCOUNTS](#DISCOUNTS)**
 - [Discount on booking - for all users](http://bit.ly/booking-15e-offer)
 - [Discount on airbnb - for new users](http://bit.ly/airbnb-new-users-offer)
-- [Discount on electric scooters](http://bit.ly/Rent-a-scooter) - with code: **xmtcg** 
+- [Discount on electric scooters](http://bit.ly/Rent-a-scooter) - with code: **xmtcg**  | this is one of the best and funniest ways to visit the neighborhood around the castle. Just make sure you have phone charged and a data plan.
 
 ---
 
