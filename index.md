@@ -136,14 +136,18 @@ Note: [buy the tickets online and avoid queues](https://www.parquesdesintra.pt/e
 
 You'll notice that the public transports are not bad, but the tickets system is so messed up. To go to Cascais you may find yourself waiting in line for 45 minutes to get a simple ticket. But there is a trick... don't be a dumbass tourist!
 
-**What not to do**
-
-- Viva Viagem (The green card): avoid buying specific trips like train, boat, metro. When you go for the first time to the metro ticket machines, don't buy one way or round trip tickets, choose zapping and top up with money. You can use this on the metro, buses, train and boats. The price you pay per trip is the same and this way you avoid queues. The queues for Cascais sometimes take 45 minutes. Don't be a dumbass tourist!
+**Viva Viagem (The green card):** avoid buying specific trips like train, boat, metro. When you go for the first time to the metro ticket machines, don't buy one way or round trip tickets, choose zapping and top up with money. You can use this on the metro, buses, train and boats. The price you pay per trip is the same and this way you avoid queues. The queues for Cascais sometimes take 45 minutes. Don't be a dumbass tourist!
 
 So.. you read this and said to yourself, who is this guy? Telling me what to do. I'll buy the ticket when I need the ticket. And now you find yourself waiting on a ridiculously long queue at Cais do Sodré. 
 Fear nothing, there is another way. Forget the ticket machines near the train, go down to the metro ticket machines and choose the zapping, top up with 10€, go back to the train and laugh at everyone waiting to buy a ticket. Please do.
 
 But the queues at the metro ticket machines are also huge... Yes, sometimes it happens. Then, walk a little from Cais do Sodré until the next station (Santos), buy the ticket there, it' usually empty.
+
+
+**:: My favorite places to eat**
+
+So, you want to eat nice fish while enjoying a really nice view over the bay?
+- [Baía do Peixe](https://goo.gl/maps/o1recy1aSm52) | ground floor has all you can eat seafood, upper floor all you can eat fish. My suggestion is for the upper floor. You must [call](https://www.zomato.com/pt/grande-lisboa/ba%C3%ADa-do-peixe-cascais-centro-lisboa/info) and book in advance. Go there if you want to eat well, don't expect good service. Their service sucks, the food and view are great. It's 15€ for all the fish you can eat, everything else you pay as if it was gold. 
 
 ---
 
@@ -162,9 +166,8 @@ But the queues at the metro ticket machines are also huge... Yes, sometimes it h
 My suggestion to see Lisbon and not walking too much is [renting an electric scooter](http://bit.ly/Rent-a-scooter). It's especially good to visit the Castle area, where you have small and cute streets. Also good to go to LX Factory or Belém and avoid the chaos from the train and tram. If you want to get 30 free minutes, just register using this code: **xmtcg** 
 
 **Q:** Where can I leave my luggage (Lisbon)?
-- [CP Train Stations](http://bit.ly/lisbon-luggage-lockers)
 
-**A:** There is a whatsapp group you can join where there is a big community for the Lisbon couchsurfers, just follow the [link](http://bit.ly/lisbon-whatsapp-cs-group)
+**A:** [CP Train Stations](http://bit.ly/lisbon-luggage-lockers)
 
 **Q:** Where can I find other couchsurfers?
 
