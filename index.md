@@ -64,7 +64,8 @@
 
 **:: Museums**
 
-The information I'm adding here is based on this [site](https://pumpkin.pt/eventos/museus-e-monumentos-gratuitos-no-primeiro-domingo-de-cada-mes/)
+The information I'm adding here is based on this [site](https://pumpkin.pt/eventos/museus-e-monumentos-gratuitos-no-primeiro-domingo-de-cada-mes/).
+
 Every Sunday and Holiday, some museums are free from 10am to 2pm (for residents only). Other museums have their specific days when they are free to visit. Check the list on the website, so that you are careful not to plan your visit while locals are there (avoid queues).
 You can check the Prices [here](http://www.patrimoniocultural.gov.pt/static/data/bilheteira/precario_bilheteira.jpg), under "Bilhete Normal"
 
@@ -127,6 +128,22 @@ Note: [buy the tickets online and avoid queues](https://www.parquesdesintra.pt/e
 - [Travesseiros de Sintra](https://goo.gl/maps/CUocfbnEM9H2)
 - [Queijadas de Sintra](https://goo.gl/maps/tQko4mAnMHJ2)
 
+---
+
+**[About CASCAIS](#CASCAIS)**
+
+**:: Getting there**
+
+You'll notice that the public transports are not bad, but the tickets system is so messed up. To go to Cascais you may find yourself waiting in line for 45 minutes to get a simple ticket. But there is a trick... don't be a dumbass tourist!
+
+**What not to do**
+
+- Viva Viagem (The green card): avoid buying specific trips like train, boat, metro. When you go for the first time to the metro ticket machines, don't buy one way or round trip tickets, choose zapping and top up with money. You can use this on the metro, buses, train and boats. The price you pay per trip is the same and this way you avoid queues. The queues for Cascais sometimes take 45 minutes. Don't be a dumbass tourist!
+
+So.. you read this and said to yourself, who is this guy? Telling me what to do. I'll buy the ticket when I need the ticket. And now you find yourself waiting on a ridiculously long queue at Cais do Sodré. 
+Fear nothing, there is another way. Forget the ticket machines near the train, go down to the metro ticket machines and choose the zapping, top up with 10€, go back to the train and laugh at everyone waiting to buy a ticket. Please do.
+
+But the queues at the metro ticket machines are also huge... Yes, sometimes it happens. Then, walk a little from Cais do Sodré until the next station (Santos), buy the ticket there, it' usually empty.
 
 ---
 
@@ -142,7 +159,7 @@ Note: [buy the tickets online and avoid queues](https://www.parquesdesintra.pt/e
 **Q:** Should you / can you rent a bike in Lisbon?
 
 **A:** Well, Lisbon is made of 7 hills, not very nice for biking, but you can rent bikes to ride along the river. I've never rented a bike, so I can't suggest you, but you can find many options when you [google it](http://bit.ly/google-rent-bikes-lisbon)
-My suggestion to see Lisbon and not walking too much is [renting an electric scooter](http://bit.ly/Rent-a-scooter). It's especially good to visit the Castle area, where you have small streets. If you want to get 30 free minutes, just register using this code: **xmtcg** 
+My suggestion to see Lisbon and not walking too much is [renting an electric scooter](http://bit.ly/Rent-a-scooter). It's especially good to visit the Castle area, where you have small and cute streets. Also good to go to LX Factory or Belém and avoid the chaos from the train and tram. If you want to get 30 free minutes, just register using this code: **xmtcg** 
 
 **Q:** Where can I leave my luggage (Lisbon)?
 - [CP Train Stations](http://bit.ly/lisbon-luggage-lockers)
