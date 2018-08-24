@@ -57,9 +57,16 @@
 **:: Where you can turn on your laptop and work or charge your phone**
 - [Starbucks São Sebastião](https://goo.gl/maps/tP1xS7fWxGP2) | metro: sao sebastião
 - [Starbucks Rossio](https://goo.gl/maps/C8ed4fdCHCn) | metro: restauradores
-- [Holmes Place Defensor de Chaves](https://goo.gl/maps/fve3ukJtApP2) (it's a gym, go up to the cafe) | metro: saldanha
+- [Holmes Place Defensor de Chaves](https://goo.gl/maps/fve3ukJtApP2) (it's a gym, go up to find the cafe) | metro: saldanha
 - [Montana Café](https://goo.gl/maps/uKg69gkPtmH2) | metro: cais do sodré | *great coffee*
 - [A Gama do Vasco](https://goo.gl/maps/wfBQDkfB7zB2) | metro: picoas
+- [Municial Library Palácio das Galveias](https://goo.gl/maps/DyKzQ4vsrJ92) | metro: campo pequeno | gorgeous place with a nice kiosk outside
+
+**:: Museums**
+
+The information I'm adding here is based on this [site](https://pumpkin.pt/eventos/museus-e-monumentos-gratuitos-no-primeiro-domingo-de-cada-mes/)
+Every Sunday and Holiday, some museums are free from 10am to 2pm (for residents only). Other museums have their specific days when they are free to visit. Check the list on the website, so that you are careful not to plan your visit while locals are there (avoid queues).
+You can check the Prices [here](http://www.patrimoniocultural.gov.pt/static/data/bilheteira/precario_bilheteira.jpg), under "Bilhete Normal"
 
 
 **:: An overview of the city**
@@ -80,7 +87,7 @@
 
 - [Bifanas](https://goo.gl/images/3dJoHA) - [Café Beira Gare](https://goo.gl/maps/S9A4zo3Y5zt) - Order one bifana, put mustard inside and eat it with a beer
 - [Pasteis de bacalhau](https://goo.gl/images/oZ5abn) - 
-- [Alheira](https://goo.gl/images/wHesf9) - 
+- [Alheira](https://goo.gl/images/wHesf9) and other portuguese dishes - [Floresta da Estefânia](https://goo.gl/maps/EvQaD3BrNj12)
 - Bio (Vegetarian) -  
 
 
